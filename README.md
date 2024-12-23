@@ -1,0 +1,1 @@
+Why create anything on a blockchain/in web3 at all? Because you know it is yours. 
